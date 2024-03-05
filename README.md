@@ -16,3 +16,7 @@ https://rentry.co/silliussucks
 https://rentry.co/tavroshypnotismsession
 
 -you WILL like tavros nitram
+
+https://rentry.co/livingnearanairportsuckssometimes
+
+-cruddy rentry. another byi-style thing but with PICTURES OMG... the dni doesnt really apply because i actually dont care enough. just dont be a freak yknow
