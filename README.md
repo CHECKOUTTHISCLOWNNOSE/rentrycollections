@@ -21,5 +21,10 @@ yeah i make a lot of rentries when im bored
 
 -cruddy rentry. another byi-style thing but with PICTURES OMG... the dni doesnt really apply because i actually dont care enough. just dont be a freak yknow
 
+꩜ https://rentry.co/ALLOFTHEMnot
+
+-every guestbook + strawpage ive signed
+
 ![NATHAN](https://github.com/CHECKOUTTHISCLOWNNOSE/rentrycollections/assets/124318937/28a3eed8-aff6-44c9-98a8-27a9b8796095)
+
 this probably isnt every rentry ive made but. who cares.
