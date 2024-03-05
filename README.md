@@ -20,3 +20,5 @@ https://rentry.co/tavroshypnotismsession
 https://rentry.co/livingnearanairportsuckssometimes
 
 -cruddy rentry. another byi-style thing but with PICTURES OMG... the dni doesnt really apply because i actually dont care enough. just dont be a freak yknow
+
+![NATHAN](https://github.com/CHECKOUTTHISCLOWNNOSE/rentrycollections/assets/124318937/28a3eed8-aff6-44c9-98a8-27a9b8796095)
